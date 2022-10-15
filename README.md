@@ -1,0 +1,1 @@
+# krkr7.github.io
